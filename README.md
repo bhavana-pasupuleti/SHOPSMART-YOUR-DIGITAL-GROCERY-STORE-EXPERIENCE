@@ -83,7 +83,7 @@ We welcome contributions! Please fork the repo and submit a pull request for any
 
 💬 Contact
 For support or inquiries, please contact:
-📧 ambikajyothidevana@gmail.com
+📧 pasupuletibhavana56@gmail.com
 🌐 LinkedIn
 
 ShopSmart revolutionizes how you buy groceries — making the process efficient, enjoyable, and stress-free!
